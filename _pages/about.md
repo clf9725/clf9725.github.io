@@ -15,6 +15,8 @@ I am on the job market in the 2023-2024 academic year.
 
 **Contact:** [chao.liu1@kellogg.northwestern.edu](mailto:chao.liu1@kellogg.northwestern.edu)
 
+**Curriculum Vitae**
+
 Job Market Paper
 ======
 What Does Balloon Mean? Quantifying the Language Friction in the Mortgage Market
