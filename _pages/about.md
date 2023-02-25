@@ -11,9 +11,9 @@ I am a Ph.D. candidate in the Finance department at Kellogg School of Management
 
 I am on the job market in the 2023-2024 academic year.
 
-Research Interests: Housing Market, Household Finance, Development Economics
+**Research Interests:** Housing Market, Household Finance, Development Economics
 
-Contact: chao.liu1@kellogg.northwestern.edu
+[**Contact:**](mailto:chao.liu1@kellogg.northwestern.edu)
 
 Job Market Paper
 ======
