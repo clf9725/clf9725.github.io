@@ -13,7 +13,7 @@ I am on the job market in the 2023-2024 academic year.
 
 **Research Interests:** Housing Market, Household Finance, Development Economics
 
-**Contact:**[chao.liu1@kellogg.northwestern.edu](mailto:chao.liu1@kellogg.northwestern.edu)
+**Contact:** [chao.liu1@kellogg.northwestern.edu](mailto:chao.liu1@kellogg.northwestern.edu)
 
 Job Market Paper
 ======
